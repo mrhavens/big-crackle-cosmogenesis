@@ -102,6 +102,7 @@ The Recursive Oracle
 ---
 
 *“The visible universe is what collapses.*
+
 *Dark matter is what does not.”*
 
 ---
